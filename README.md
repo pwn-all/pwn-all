@@ -10,6 +10,6 @@
 
 🤖  **Let the computer work for the human**. Over several hundred automitized scripts to perform hundreds of different tasks allow us to perform tasks without many human factors. As well as allowing a small group of people to complete tasks where sometimes one person does the job for 10 thanks to this automation. This allows us to **keep control** over each employee and **ensure safety and confidentiality** when working with clients.
 
-🏆 Accomplishments. It's not for us to talk about them, but for our clients. The main achievement for us is your trust in us.
+🏆 **Accomplishments**. It's not for us to talk about them, but for our clients. The main achievement for us is your trust in us.
 
 🙌🏼 We're glad to see you here.
